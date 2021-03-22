@@ -1,0 +1,1 @@
+My name is Bruno. I work as a Database Administrator and Software developer. I had a bachelor's degree in IT and have been working as an IT professional for more than 8 years. Currently I work at a bank but I'm looking forward to work as a freelancer.
